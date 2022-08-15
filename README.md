@@ -1,0 +1,3 @@
+- 👋 Xypoot Here
+- 🔥 On Fire
+- 🚕 Still Ongoing/Learning
